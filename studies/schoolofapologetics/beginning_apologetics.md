@@ -58,6 +58,14 @@ Yes. It’s possible to prove some things about the Creator from his creations
 
 **Who were the most prominent apologists of the second century?**
 
+- Irenaeus of Lyons
+- Justin Martyr
+
 **Besides conversion, what was one of the major goals of early Christian apologetics?**
 
+- Arguing for tolerance for the Christian faith
+- Refuting rumors about Christians
+
 **Did Gnostics believe that we are “saved through knowledge”?**
+
+No, that’s an inadequate description of their beliefs.
