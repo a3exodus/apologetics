@@ -14,5 +14,19 @@ Exegesis (/ˌɛksɪˈdʒiːsɪs/ EK-sih-JEE-sis; from the Greek ἐξήγησι�
 
 The old testament and new testament.
 
+**What is the difference between historical theology and church history?**
+
+Church history is a subset of historical theology.
+
+**What is a dogma?**
+
+A dogma of the Catholic Church is defined as "a truth revealed by God, which the magisterium of the Church declared as binding".
+
+**Name 3 of the big reformers.**
+
+Martin Luther, Huldrych Zwingli and John Calvin.
+
 ## Chapter 2
+
+
 
