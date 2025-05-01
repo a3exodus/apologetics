@@ -20,6 +20,10 @@ Natural law (Latin: ius naturale, lex naturalis) is a philosophical and legal th
 
 ## P
 
+**Paganism**
+
+Paganism (from Latin pāgānus 'rural, rustic', later 'civilian') is a term first used in the fourth century by early Christians for people in the Roman Empire who practiced polytheism, or ethnic religions other than Christianity, Judaism, and Samaritanism.
+
 **Polytheism**
 
 Polytheism is the belief in or worship of more than one god.
