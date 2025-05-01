@@ -74,8 +74,16 @@ No, that’s an inadequate description of their beliefs.
 
 **What new challenge emerged in the Middle Ages that needed a response from Christian apologists?**
 
+Islam
+
 **Who introduced the ontological argument for God’s existence?**
+
+St. Anselm of Canterbury
 
 **Who popularized the Kalam argument for God’s existence?**
 
+St. Bonaventure
+
 **Who proposed the historically most popular arguments for God’s existence?**
+
+St. Thomas Aquinas
