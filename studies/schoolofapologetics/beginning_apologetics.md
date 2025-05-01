@@ -37,9 +37,19 @@ They should be evaluated and either accepted or rejected on their merits
 
 **What are the two principal ways the New Testament authors argue that Jesus is the Messiah?**
 
+- Jesus and his followers performed miracles
+- Jesus fulfilled messianic prophecy
+
 **What insight does the New Testament provide on the problem of evil?**
+
+- God sometimes allows suffering even when someone has not sinned
+- God will bring good out of evil
+- God will compensate us for suffering in the next life
 
 **What attitude do the New Testament authors take toward Greek thought?**
 
+They should be evaluated and either accepted or rejected on their merits
+
 **Can we use natural law reasoning to learn things about God?**
 
+Yes. It’s possible to prove some things about the Creator from his creations
