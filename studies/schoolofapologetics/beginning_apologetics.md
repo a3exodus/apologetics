@@ -32,3 +32,14 @@ Because we love other people
 **What attitude did they take toward ideas found in Greek philosophy?**
 
 They should be evaluated and either accepted or rejected on their merits
+
+### Lesson 3: Apologetics in the New Testament
+
+**What are the two principal ways the New Testament authors argue that Jesus is the Messiah?**
+
+**What insight does the New Testament provide on the problem of evil?**
+
+**What attitude do the New Testament authors take toward Greek thought?**
+
+**Can we use natural law reasoning to learn things about God?**
+
