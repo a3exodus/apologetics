@@ -19,3 +19,16 @@ Because we love other people
 
 ### Lesson 2: Apologetics in the Old Testament
 
+**How did the Old Testament authors defend monotheism against the polytheistic views that were common in their day?**
+
+- By pointing to God’s miracles
+- By providing alternative, monotheistic accounts
+
+**How did they explain the presence of suffering in the world?**
+
+- Sometimes sin leads to suffering
+- Sometimes suffering is a mystery
+
+**What attitude did they take toward ideas found in Greek philosophy?**
+
+They should be evaluated and either accepted or rejected on their merits
