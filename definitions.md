@@ -4,6 +4,7 @@
 
 **Apologetics**
 
-Apologetics (from Greek ἀπολογία, apología, 'speaking in defense') is the religious discipline of defending religious doctrines through systematic argumentation and discourse. 
-[https://en.wikipedia.org/wiki/Apologetics](https://en.wikipedia.org/wiki/Apologetics)
+Apologetics (from Greek ἀπολογία, apología, 'speaking in defense') is the religious discipline of defending religious doctrines through systematic argumentation and discourse.
+
+Source: [https://en.wikipedia.org/wiki/Apologetics](https://en.wikipedia.org/wiki/Apologetics)
 
