@@ -69,3 +69,13 @@ Yes. It’s possible to prove some things about the Creator from his creations
 **Did Gnostics believe that we are “saved through knowledge”?**
 
 No, that’s an inadequate description of their beliefs.
+
+### Lesson 5: Apologetics in the Middle Ages
+
+**What new challenge emerged in the Middle Ages that needed a response from Christian apologists?**
+
+**Who introduced the ontological argument for God’s existence?**
+
+**Who popularized the Kalam argument for God’s existence?**
+
+**Who proposed the historically most popular arguments for God’s existence?**
