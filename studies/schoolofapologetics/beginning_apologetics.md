@@ -16,3 +16,6 @@ The study of how to defend a position
 **What is the fundamental reason to practice apologetics?**
 
 Because we love other people
+
+### Lesson 2: Apologetics in the Old Testament
+
