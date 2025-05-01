@@ -53,3 +53,11 @@ They should be evaluated and either accepted or rejected on their merits
 **Can we use natural law reasoning to learn things about God?**
 
 Yes. It’s possible to prove some things about the Creator from his creations
+
+### Lesson 4: Apologetics in the Early Church
+
+**Who were the most prominent apologists of the second century?**
+
+**Besides conversion, what was one of the major goals of early Christian apologetics?**
+
+**Did Gnostics believe that we are “saved through knowledge”?**
