@@ -1,4 +1,4 @@
-# History of Apologetics
+# 2: History of Apologetics
 
 ## Lesson 1: Beginning Apologetics
 
