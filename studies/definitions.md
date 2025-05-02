@@ -44,6 +44,10 @@ Paganism (from Latin pāgānus 'rural, rustic', later 'civilian') is a term firs
 
 Polytheism is the belief in or worship of more than one god.
 
+**Presuppositional Apologetics**
+
+Presuppositional apologetics, shortened to presuppositionalism, is an epistemological school of Christian apologetics that examines the presuppositions on which worldviews are based, and invites comparison and contrast between the results of those presuppositions.
+
 ## S
 
 **Secularism**
