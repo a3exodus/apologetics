@@ -16,6 +16,12 @@ Atheism, in the broadest sense, is an absence of belief in the existence of deit
 
 belief in the existence of a supreme being, specifically of a creator who does not intervene in the universe.
 
+## E
+
+**Epistemology**
+
+The theory of knowledge, especially with regard to its methods, validity, and scope, and the distinction between justified belief and opinion.
+
 ## M
 
 **Monotheism**
