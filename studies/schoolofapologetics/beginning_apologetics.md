@@ -40,7 +40,7 @@ response from Christian apologists?
 4. Who proposed the historically most popular arguments for God’s
 existence?
 
-## Lesson 6: Apologetics After the Reformation
+### Lesson 6: Apologetics After the Reformation
 
 1. What were the two main criticisms the Protestant Reformers made
 of Catholic teaching?
@@ -48,7 +48,7 @@ of Catholic teaching?
 3. What is agnosticism?
 4. What is theism?
 
-## Lesson 7: Recent Apologetics
+### Lesson 7: Recent Apologetics
 
 1. Who was the most significant apologist of the twentieth century
 dealing with secularism?
