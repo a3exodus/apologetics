@@ -1,4 +1,4 @@
-# Faith and Reason
+# 4: Faith and Reason
 
 ## Lesson 11: The Reasonability of Faith
 
