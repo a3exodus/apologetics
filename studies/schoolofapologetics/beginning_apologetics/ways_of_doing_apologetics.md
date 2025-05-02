@@ -1,4 +1,4 @@
-# Ways of Doing Apologetics
+# 3: Ways of Doing Apologetics
 
 ## Lesson 8: Methods of Apologetics
 
