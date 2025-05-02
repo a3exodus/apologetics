@@ -39,3 +39,19 @@ response from Christian apologists?
 3. Who popularized the Kalam argument for God’s existence?
 4. Who proposed the historically most popular arguments for God’s
 existence?
+
+## Lesson 6: Apologetics After the Reformation
+
+1. What were the two main criticisms the Protestant Reformers made
+of Catholic teaching?
+2. What is deism?
+3. What is agnosticism?
+4. What is theism?
+
+## Lesson 7: Recent Apologetics
+
+1. Who was the most significant apologist of the twentieth century
+dealing with secularism?
+2. What caused Catholic apologetics to go into eclipse in this time frame?
+3. What broadened the religious marketplace of ideas?
+
