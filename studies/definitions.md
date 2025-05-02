@@ -37,3 +37,10 @@ Paganism (from Latin pāgānus 'rural, rustic', later 'civilian') is a term firs
 **Polytheism**
 
 Polytheism is the belief in or worship of more than one god.
+
+## S
+
+**Secularism**
+
+Secularism is the principle of seeking to conduct human affairs based on naturalistic considerations, uninvolved with religion.
+
