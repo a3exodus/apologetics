@@ -6,6 +6,16 @@
 
 Apologetics (from Greek ἀπολογία, apología, 'speaking in defense') is the religious discipline of defending religious doctrines through systematic argumentation and discourse.
 
+**Atheism**
+
+Atheism, in the broadest sense, is an absence of belief in the existence of deities.
+
+## D
+
+**Deism**
+
+belief in the existence of a supreme being, specifically of a creator who does not intervene in the universe.
+
 ## M
 
 **Monotheism**
