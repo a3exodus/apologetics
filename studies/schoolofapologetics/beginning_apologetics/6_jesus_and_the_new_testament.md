@@ -1,3 +1,5 @@
+# 6: Jesus and the New Testament
+
 ## Lesson 21: A Case for Christ
 
 1. How many early Roman authors speak about Jesus?
